@@ -1,4 +1,4 @@
-> ⚠️ **You are viewing a fork of [Gubby Photon's repository](YOUR_REPO_LINK).** This is your personal copy — any changes you make only affect your version.
+> ⚠️ **You are viewing a fork of [Gubby Photon's repository](YOUR_REPO_LINK).**
 
 # 📱 Forsaken x Opera GX Rewards — Mobile Players
 
