@@ -6,7 +6,7 @@
 
 ## 🎥 Video Tutorial
 
-👉 [How To Earn Forsaken x Opera GX Rewards via Mobile (YouTube)](google.com)
+👉 [How To Earn Forsaken x Opera GX Rewards via Mobile (YouTube)](https://www.youtube.com/watch?v=zcojOCj9j1g)
 
 ---
 
